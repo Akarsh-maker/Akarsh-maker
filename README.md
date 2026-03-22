@@ -1,4 +1,4 @@
-# Hi there, I'm [Your Full Name] 👋
+# Hi there, I'm Akarsh Mishra 👋
 
 ### 🎓 About Me
 - **College:** VIT Bhopal
